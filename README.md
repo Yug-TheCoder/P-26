@@ -1,1 +1,1 @@
-# P-26
+Recipe and Ingredients for Paneer Kadai
